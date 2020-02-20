@@ -1,0 +1,2 @@
+# Emirhan
+Türküz Türk Kalacağız
